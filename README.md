@@ -1,1 +1,1 @@
-National Centr for Social Research
+National Centre for Social Research
